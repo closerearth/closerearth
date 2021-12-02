@@ -2,8 +2,8 @@
 - 👀 I've been obeserving the world around lately
 - 😱 It's like we forgot who we were
 - 👾 We made machines
-- 🤡 But we are men
-- 🤖 We crave for human connection
+- 🤡 But we are just humans
+- 🤖 We crave for connection
 - 😺 Not just cute cats
 - 🌱 We are the #regenaissance
 - 🗝 We are stewards
