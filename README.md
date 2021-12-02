@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @closerearth
-- 👀 I've been obeserving the world around lately
+- 👀 I've been observing the world around lately
 - 😱 It's like we forgot who we were
 - 👾 We made machines
 - 🤡 But we are just humans
