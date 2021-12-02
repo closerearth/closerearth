@@ -5,8 +5,9 @@
 - 🤡 But we are just humans
 - 🤖 We crave for connection
 - 😺 Not just cute cats
+- 🥰 Let's get #closer
 - 🌱 We are the #regenaissance
 - 🗝 We are stewards
 - 🍕 Come play with us on https://closer.earth
-- 💞️ Send me love on 0x9B5f6dF2C7A331697Cf2616CA884594F6afDC07d
+- 💞️ Patron our DAO 0x9B5f6dF2C7A331697Cf2616CA884594F6afDC07d
 - 📫 closer.earth@protomail.com
